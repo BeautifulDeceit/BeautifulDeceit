@@ -4,5 +4,6 @@
 
 <p align="center">
   🌻 . ✨ ˚ 𝜗𝜚 ｡ 💛
+  Mặc đẹp chưa chắc tốt, mặc xấu chưa chắc tốt bằng 
 </p>
 
