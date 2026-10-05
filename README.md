@@ -9,8 +9,17 @@ $${\color{#bdd280}\text{\textit{"𝓘 𝓵𝓸𝓿𝓮 𝔂𝓸𝓾, 𝓶𝔂 �
 <br>
 <br>
 
-<img src="https://cdn.phototourl.com/member/2026-10-05-34a97d99-ed5d-46f0-8b8e-12a0c4d7bbd2.jpg" width="80%">
+<img src="https://cdn.phototourl.com/member/2026-10-05-06f73823-19e0-4feb-84ea-b48c3bd77a75.png" width="500px"  height="400px">
+<br>
+<br>
+
+$${\color{#bdd280}\text{良い一日を！}}$$
 
 
+<img src="https://cdn.phototourl.com/member/2026-10-05-679a589b-2caf-45ea-917f-91f95521329c.png" width="200px">
+<br>
+<br>
+
+$${\color{#bdd280}\text{-`♡´- 𝚁𝚘𝚍𝚒𝚘𝚗}}$$
 
 </div>
