@@ -1,9 +1,5 @@
-<p align="center">
-  <img src="git lan thu 3 tyyyy.png" alt="git lan thu 3 tyyyy.png" width="100%">
-</p>
+<div align="center">
 
-<p align="center">
-  🌻 . ✨ ˚ 𝜗𝜚 ｡ 💛
-  
-</p>
+$${\color{#3a3a3a}\colorbox{black}{\quad\color{#adff2f}\text{\textit{"𝓘 𝓵𝓸𝓿𝓮 𝔂𝓸𝓾, 𝓶𝔂 𝓭𝓮𝓪𝓻"}}\quad}}$$
 
+</div>
