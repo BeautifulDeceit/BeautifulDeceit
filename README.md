@@ -8,6 +8,7 @@ $${\color{#bdd280}\text{\textit{"𝓘 𝓵𝓸𝓿𝓮 𝔂𝓸𝓾, 𝓶𝔂 �
 <br>
 <br>
 
-![Banner](https://ibb.co/hJdBRDdK)
+<img src="https://ibb.co/hJdBRDdK" width="100%">
+
 
 </div>
