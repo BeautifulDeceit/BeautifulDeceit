@@ -5,5 +5,9 @@ $${\color{#bdd280}\text{\textit{"𝓘 𝓵𝓸𝓿𝓮 𝔂𝓸𝓾, 𝓶𝔂 �
 ![Love Badge](https://img.shields.io/badge/in_other_world_i_love_you-520-green
 )
 
-</div>
+<br>
+<br>
 
+![Banner](https://ibb.co/hJdBRDdK)
+
+</div>
