@@ -9,7 +9,7 @@ $${\color{#bdd280}\text{\textit{"𝓘 𝓵𝓸𝓿𝓮 𝔂𝓸𝓾, 𝓶𝔂 �
 <br>
 <br>
 
-<img src="https://cdn.phototourl.com/member/2026-10-06-de6d1d1a-8601-4e92-8c85-7a0282ce5a79.png" width="600px"  height="400px">
+<img src="https://cdn.phototourl.com/member/2026-10-06-341fec25-3d0a-4b56-baa3-2acffc4abc94.png" width="600px"  height="400px">
 <br>
 <br>
 
