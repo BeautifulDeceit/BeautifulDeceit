@@ -1,16 +1,16 @@
 <p align="center">
-  <img src="https://cdn.phototourl.com/member/2026-10-26-21ba21cf-2813-4b7d-94f8-bd44fd638c49.png" width="400">
+  <img src="https://cdn.phototourl.com/member/2026-11-02-701c25cf-db8b-436b-9a4a-331626319a67.png" width="400">
 </p>
 <p align="center">
-  <img src="https://cdn.phototourl.com/member/2026-10-26-fb36220f-4e0d-44d4-a58d-653a2c25437e.png" width="400">
+  <img src="https://cdn.phototourl.com/member/2026-11-02-5c166880-f599-4ca2-aff6-27113ed28856.png" width="400">
 
   𝚏𝚞𝚛𝚞𝚔𝚘 ヽ(✿ﾟ▽ﾟ)ノ
 </p>
 <p align="center">
-  <img src="https://cdn.phototourl.com/member/2026-10-26-4b07cee3-6280-43d8-a52e-0eaaeecc7d55.png" width="400">
+  <img src="https://cdn.phototourl.com/member/2026-11-02-be7ee479-2905-4bad-b711-ef5a64b39b8a.png" width="400">
 </p>
 <p align="center">
-  <img src="https://cdn.phototourl.com/member/2026-10-26-5178e126-3b8e-4c11-b626-6ecc77a3c6ce.png" width="400">
+  <img src="https://cdn.phototourl.com/member/2026-11-02-10ac1aca-18f3-4ddb-b283-1ed650274dea.png" width="200">
 </p>
 
 
